@@ -1,4 +1,8 @@
 ### Hi there 👋
+- 🎀 Hi, I’m Intira Iamdech(@kruindexz). 
+- ✨ I’m interested in Technology computer.
+- 🚀 I’m currently learning Computer education
+- 🛵 I’m looking for new experience.
 
 <!--
 **KruIndexz/KruIndexz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
