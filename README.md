@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 🎀 Hi, I’m Intira Iamdech(@kruindexz). 
+- 🎀 I’m Intira Iamdech(@kruindexz). 
 - ✨ I’m interested in Technology computer.
 - 🚀 I’m currently learning Computer education
 - 🛵 I’m looking for new experience.
